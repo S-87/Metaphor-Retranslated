@@ -13,5 +13,6 @@ Because I think the excuse of 'localization' takes far too many creative liberti
 Disclaimer:
 This is a huge game with a lot of text. This will take some time to get through, so don't expect 100% any time soon.
 
-If you wish to donate for my work (this is not necessary, does not affect the pace of this project, and is merely an act of kindness on your behalf):
-https://ko-fi.com/stranslations
+If you're feeling generous a donation link is here. These are seperate acts of kindness that do not affect progress of this project or any future project of mine.
+
+
