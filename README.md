@@ -13,7 +13,7 @@ Because I think the excuse of 'localization' takes far too many creative liberti
 Disclaimer:
 This is a huge game with a lot of text. This will take some time to get through, so don't expect 100% any time soon.
 
-If you're feeling generous a donation link is here. This is a seperate act of kindness, and does not affect this project or any future project.
+
 
 
 
